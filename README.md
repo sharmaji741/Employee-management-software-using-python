@@ -12,7 +12,7 @@ If you're looking for someone who's:
 
 Then you've come to the right place! 
 
-**Connect with me on Instagram:** @Lakshay_7_Sharma [invalid URL removed] (Feel free to DM me about code!)
+**Connect with me on Instagram:** @Lakshay_7_Sharma (Feel free to DM me about code!)
 
 **What you'll find in this repository:**
 
